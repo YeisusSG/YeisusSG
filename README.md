@@ -1,0 +1,3 @@
+- 👋 Hola, mi usuario es @YeisusSG
+- 👀 Me encanta mucho el mundo de la programación y estoy en constante aprendizaje como todos.
+- 💞️ Colaboraré con todo lo que pueda.
